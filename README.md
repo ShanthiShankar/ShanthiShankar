@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ShanthiShankar
+- 👀 I’m interested in Software Development.
+- 🌱 I’m currently working in Cognizant Technological Solution.
+- 💞️ I’m looking to collaborate on Software Development Projects.
+- 📫 How to reach me - "shanthisp11@gmail.com" , www.linkedin.com/in/shanthi-914359210
+-                       
